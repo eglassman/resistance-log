@@ -18,3 +18,5 @@ She suggests that each day, I should:
 - Use a timer for my writing time
 - Notice my resistance and record the thoughts, urges, and feelings of the resistence itself and how I'm reacting to its existence
 - Look over the log periodically to find patterns
+
+Personal note: I should do the same with meditation!
