@@ -20,3 +20,8 @@ She suggests that each day, I should:
 - Look over the log periodically to find patterns
 
 Personal note: I should do the same with meditation!
+
+Aug 10 '17
+- check Facebook
+- read about international news dramas
+- check Twitter
